@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @mnzuniga !
+- 👀 I’m exploring career paths :)
+- 🌱 I’m currently learning more about data science
+- 📫 How to reach me: email! mzuniga19@ucmerced.edu or mmarianzuniga24@gmail.com
+- 😄 Pronouns: she / her
